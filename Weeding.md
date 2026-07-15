@@ -20,8 +20,9 @@
 > 蔓花生（學名：Arachis pintoi，又稱地毯花生、觀賞花生）是一種多年生匍匐性豆科植物，原產於南美洲，目前在臺灣常被作為地被植物、水土保持植物及果園綠肥植物使用。
 
 <div align="center">
-  <img src="./images/蔓花生-01.jpg" width="300">
-  <img src="./images/蔓花生-02.jpg" width="300">
+  <img src="./images/蔓花生-01.jpg" width="33%">
+  <img src="./images/蔓花生-02.jpg" width="33%">
+  <img src="./images/蔓花生-03.jpg" width="33%">
 </div>
 ## 根系
 ## 花、藥
