@@ -7,6 +7,7 @@
   - [日本老農不外傳的減草祕籍！(23:38)](https://www.youtube.com/watch?v=ow-tawheagU)
   - [你菜园的草在替土壤喊救命！看懂这张表，5分钟免费体检，不花一分钱！(14:08)](https://www.youtube.com/watch?v=OUeCTz0ILq4) |
     植物生態學和土壤化學 | 雜草出現不是隨機，表示是被土壤的酸鹼度、壓實程度和營養結構所召換出來，例：酢漿草說明土壤缺鈣偏酸
+  - [彎腰拔草太傷身！這5種「地被神器」種一次管三年，菜地乾淨還能讓蔬菜產量翻倍！(26:32)](https://www.youtube.com/watch?v=_kRdu-frgs0)
 - [不打除草劑、不用防草布，日本“自然農法”，不花錢教你生態防草(04:18)](https://www.youtube.com/watch?v=oUKxcYOYO7w) | 松樹皮-> 自然農法
 - [割下的草該如何處理？別再犯這些錯誤了(08:58)](https://www.youtube.com/watch?v=vyoJ5t44Jzo)
 
