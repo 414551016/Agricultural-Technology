@@ -14,6 +14,8 @@
     > - 以草治草：⑴留下有益的草(緑肥、花、藥草)。⑵地下根系的物理封鎖和化學攻繫。葡萄百里香、活血丹 | 白花三葉草、馬齒莧(豬母乳)、芳香萬壽菊
     > - 生態位搶佔：利用特定植物去佔據菜地周圍的地盤，讓雜草找不到資源生長。
     > - 活覆蓋壓草：
+- {[零元农业](https://www.youtube.com/@lingyuannongye)}
+  - [免耕法与覆盖作物：如何不翻土吸引蚯蚓，打造高产有机菜园](https://www.youtube.com/watch?v=PGbkKapQAOY)
 - [不打除草劑、不用防草布，日本“自然農法”，不花錢教你生態防草(04:18)](https://www.youtube.com/watch?v=oUKxcYOYO7w) | 松樹皮-> 自然農法
 - [割下的草該如何處理？別再犯這些錯誤了(08:58)](https://www.youtube.com/watch?v=vyoJ5t44Jzo)
 
